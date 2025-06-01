@@ -13,7 +13,7 @@ Yes I'm gonna use the Newton divider a lot. It's kinda the only one that works o
 
 Anyway. Identities n whatnot. I'm uhh gayroace, and non-binary. I use they/he pronouns. Use she/her or it/its and I'm crASHING OUT!!1!11!!11
 
-Also. Furry. Alterhuman. Therian, fictionkin, objectkin n shit. Comprehensive list includes cat therian, rotary phone objectkin, and (prepare yourselves its a lot ) Dave DSaF, Phonegingi Dialtown, Bill Gravity Falls, Tom Nook Animal Crossing and Present Mic MHA fictionkin.
+Also. Furry. Alterhuman. Therian, fictionkin, objectkin n shit. Comprehensive list includes cat therian, rotary phone objectkin, and (prepare yourselves its a lot ) Dave (DSaF), Phonegingi (Dialtown), Bill (Gravity Falls), Tom Nook (Animal Crossing), Present Mic (MHA) and Newton (LBP) fictionkin. Yes, I'm my own biggest fan, its complicated.
 
 I'm hungry.
 
@@ -33,7 +33,7 @@ princessherogirl/kawaiiuproarprincess/willowchan fans/friends/supporters dni
 
 fictionkin doubles dni (sorry, nothing against yall, just makes me uncomfy)
 
-pretty blood, terrible mouse, coffin of andy and ley ley, countryhumans, polandball, hazbin hotel and helluva boss fans dni. yes even if you're on my friends list I WILL block you
+pretty blood, terrible mouse, the coffin of andy and ley ley, mcbushpig, countryhumans, polandball, hazbin hotel and helluva boss fans dni. yes even if you're on my friends list I WILL block you
 
 ![image](https://github.com/user-attachments/assets/557582d2-121d-45b5-a057-544f63cb2fc9)
 
