@@ -35,7 +35,7 @@ nekozuna/glitterpop, kittydog or 4lung fans/supporters dni
 
 princessherogirl/kawaiiuproarprincess/willowchan fans/friends/supporters and r1v3r.c0y0t3/Lee fans/friends/supporters dni
 
-pretty blood, terrible mouse, the coffin of andy and ley ley, mcbushpig, countryhumans, polandball, hazbin hotel and helluva boss fans dni. yes even if you're on my friends list I WILL block you
+pretty blood, terrible mouse, psycho cuties, the coffin of andy and ley ley, mcbushpig, hazbin hotel and helluva boss fans dni. yes even if you're on my friends list I WILL block you
 
 ![image](https://github.com/user-attachments/assets/557582d2-121d-45b5-a057-544f63cb2fc9)
 
